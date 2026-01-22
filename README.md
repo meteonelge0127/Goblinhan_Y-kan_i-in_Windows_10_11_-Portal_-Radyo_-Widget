@@ -1,1 +1,1 @@
-# Goblinhan-Y-kan-i-in-Windows-10-11-Portal-Radyo-Widget
+# Goblinhan Yıkan için Windows 10/11 Portal Radyo Widget
